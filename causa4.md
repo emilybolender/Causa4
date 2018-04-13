@@ -1,0 +1,2 @@
+# Causa4
+inexcommunicatione constitutus episcopum accusare disponit, adolescentem XIII etatis sue annui adassertionem sue cause adducit prohibitus abaccusatione adolescentem accusatorem, et se testem facit. Adolescens personam accusatoris et testis gerere cupit, di statuta adiudicium electorum iudicium episcopus minime concurrit a comunione suspenderem, tandem renovato iudicio, accusator culpabilis inaccusatione invenitur, demum adassertionem prope cause procedit, hic primum queriter
